@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zain-838
+- 👀 I’m interested in University studying at UNSW
+- 🌱 I’m currently learning Computer Science
+- 💞️ I’m looking to collaborate on various projects that can help me improve my skills and learn new skills
+- 📫 How to reach me zain.khan3791@gmail.com
